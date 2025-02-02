@@ -2,4 +2,4 @@
 
 
 
-[Резюме](https://duckduckgo.com)
+[Резюме](https://greenov1.github.io/resume/))
